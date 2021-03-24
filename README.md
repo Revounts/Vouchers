@@ -1,1 +1,2 @@
-# Vouchers
+# Coupon Codes Blog
+Save money with the latest free coupon codes, discount codes, voucher codes, promotional code, promo codes and coupons updated daily for thousands of online ...
